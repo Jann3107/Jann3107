@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Jann3107
-- 👀 I’m interested in Programming, Swimming, Scouts and the Voluntary fire brigade
-- 🌱 I’m currently learning alot of stuff since I'm stil in school.
+- 👀 I’m interested in Programming, Scouts and Swimming
+- 🌱 I’m currently learning a lot of stuff 'cause I'm still in school.
 - 💞️ I’m looking to collaborate on a bigger Project, just dm me ;)
 - 📫 Reach me via Discord: ZaYoniXx#3549
 
